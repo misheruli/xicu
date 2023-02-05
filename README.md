@@ -1,2 +1,0 @@
-# xicu
-ultimo ya porfavor
